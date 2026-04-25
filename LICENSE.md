@@ -1,4 +1,4 @@
-
+automatic Scripts for baddies is the best baddies Script, featuring no clip and no cooldown. Safe and powerful for all your needs.
 
 
 
